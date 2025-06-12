@@ -33,4 +33,4 @@ I'm an independent researcher and engineer transitioning into full-time work in 
 [Twitter](https://twitter.com/VeylanSolmira) • [LinkedIn](https://www.linkedin.com/in/veylansolmira) • [Email](mailto:veylan.solmira@gmail.com) • [Substack](https://veylansolmira.substack.com/)
 
 😄 **Pronouns:** he/they  
-⚡ **Fun fact:** I'm working on reading through the [top-100 books of all time](https://thegreatestbooks.org/). I'm currently on 47/100.
+⚡ **Fun fact:** I'm working on reading through the [top-100 books of all time](https://thegreatestbooks.org/). I'm currently on 48/100.
